@@ -1,2 +1,2 @@
-Hi, I’m @deviledmoo
-@deviledmoo on all socials
+- Hi, I’m @deviledmoo
+- @deviledmoo on all socials
